@@ -3,4 +3,5 @@
 Theoretical Framework: Unified Frequency Aggregation System
 Wasfi Ahamad Mohamed Al-shehada
 Theoretical Framework: Unified Frequency Aggregation System
-
+يمنع الاشتقاق و تمييع النص 
+ا
